@@ -1,4 +1,4 @@
-#  
+#  re:rangers x exclusive Script is the best re:rangers x Script, featuring silent aim and no clip. Safe and powerful for all your needs.
 
 
 
